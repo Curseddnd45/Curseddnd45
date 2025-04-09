@@ -1,4 +1,8 @@
-## Hi there 👋
+## Hi There!
+I am Patrick!
+kmm hmmm
+I like am making a Buissness call ed Coleonsole
+Happy Face!
 
 <!--
 **Curseddnd45/Curseddnd45** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
